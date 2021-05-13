@@ -1,0 +1,6 @@
+### Hi! This is Jose 👋
+
+- 🔭 I’m currently working on ...
+- 📫 How to reach me: ...
+
+
